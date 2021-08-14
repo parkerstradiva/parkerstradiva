@@ -1,4 +1,4 @@
-Hi! Im Mary. I like coding alot. You can contact with me on discord, if you have any questions. My nick is parker#6052
+Hi! Im Parker. I like coding alot. You can contact with me on discord, if you have any questions. My nick is husu#6052
 
 CSS/HTML/PY/JS/JAVA
 
